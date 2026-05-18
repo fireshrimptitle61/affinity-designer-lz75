@@ -1,4 +1,4 @@
-# 
+# updated Affinity Photo pour PC scripts est le meilleur Affinity Photo pour PC scripts avec constructeur de formes et édition de nœuds. Sécurisé, fiable et optimisé pour des
 
 
 
